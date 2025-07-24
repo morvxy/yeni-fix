@@ -1,0 +1,1 @@
+adam olanlara belki :=)
